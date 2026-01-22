@@ -4,6 +4,3 @@
 miauu
 ![Image](https://github.com/user-attachments/assets/99148350-81e2-444f-affc-84d3f2398b10)
  ㄏ-˕-ﾏ 
-<a href="[https://instagram.com/username_cua_bo_teo](https://www.instagram.com/chocomint2zz?igsh=NHo3aDIxZmtpOHRv&utm_source=qr)" target="_blank">
-  <img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?style=for-the-badge&logo=Instagram&logoColor=white" alt="Instagram">
-</a>
