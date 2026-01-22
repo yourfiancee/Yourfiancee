@@ -4,3 +4,4 @@
 miauu
 ![Image](https://github.com/user-attachments/assets/99148350-81e2-444f-affc-84d3f2398b10)
  ㄏ-˕-ﾏ 
+[<img src="https://raw.githubusercontent.com/rahultk31/rahultk31/master/assets/instagram.light.svg" width="25" align="center" />](https://www.instagram.com/chocomint2zz) 
